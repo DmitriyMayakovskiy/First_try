@@ -1,2 +1,2 @@
 # First_try
-Good luck 
+Бог вам в помощь
